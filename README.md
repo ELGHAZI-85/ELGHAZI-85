@@ -26,10 +26,8 @@ I’m here to use the power of data to solve cool problems and create solutions 
 ## 🎯 Let’s Connect!
 I’d love for you to explore my work, give feedback, or even team up on a project! Feel free to reach out anytime. 😊
 
-📫 **Drop me a message**: [Your Email]  
-💼 **Let’s connect on LinkedIn**: [Your LinkedIn Profile]  
-🌐 **Check out my portfolio**: [Your Website/Portfolio Link]  
-
+📫 **Drop me a message**: fatimaelghazi121@gmail.com  
+💼 **Let’s connect on LinkedIn**: https://www.linkedin.com/in/fatima-el-ghazi-/
 ---
 
 ### 🚀 Fun Fact:
